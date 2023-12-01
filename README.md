@@ -1,2 +1,2 @@
-# -Linde7777
+# Linde7777
 Blog(Chinese): https://linde.gitbook.io/blog/
